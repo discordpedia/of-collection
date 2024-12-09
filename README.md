@@ -1,12 +1,10 @@
 # of-collection
 
-Watch all your favourite Only Fans Content free on Leaksverse.com
+Watch all your favourite Only Fans Content free on [Leaksverse.com](https://leaksverse.com)
 
-```bash
-Discord : https://leaksverse.com/discord
+[Discord](https://leaksverse.com/discord)
 
-Telegram : https://leaksverse.com/telegram
-```
+[Telegram](https://leaksverse.com/telegram)
 
 
 - Mario Adrion
